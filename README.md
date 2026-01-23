@@ -11,11 +11,7 @@ hhj
 bghg
 sdkjd
 kf
-jd
-ck
-kf
-d
-dn
+
 dkd
 dkjc
 djdjf
